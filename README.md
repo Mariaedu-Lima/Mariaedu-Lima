@@ -1,6 +1,7 @@
 ### _Bem vindo ao meu perfil_ 🥀⭐
 
 🏵️Meu nome é Maria Eduarda🏵️
+
 -estudante
 
 e-mail de contato:
